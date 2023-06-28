@@ -1,4 +1,5 @@
 #Kurakova Anna
+Novice Specialist
 ##Contacts:
 Location: Minsk,Belarus
 Mail: akurakova14@gmail.com
